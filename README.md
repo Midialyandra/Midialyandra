@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 👽🦁
+### Olá, sejam bem vindos ao meu perfil! 👽🦁
 
 Meu nome é Midiã Lyandra
 
@@ -10,4 +10,7 @@ Meu nome é Midiã Lyandra
 lyandramidian@gmail.com.br
 
 @blessed__2k07
+
+![](https://media1.tenor.com/m/25xqOtknC0EAAAAC/woody.gif
+)
 
